@@ -8,4 +8,4 @@ To be frank, I don't really know. Maybe the idea is to write poetries or stories
 Mainly Portuguese, English and French. And other languages that I don't know that much but I still like it: Like _Russian_, _German_, _Polish_, _Mandarin Chinese_, _Japanese_ and so on...
 
 ## What I will be posting here?
-I hopefully hope to post the spreadsheet with the vocabulary, and some texts I will be doing with the language. 
+I hopefully hope to post the spreadsheet with the vocabulary, and some texts I will be doing with the language (Translations & Original Texts). 
